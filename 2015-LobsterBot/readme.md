@@ -1,1 +1,1 @@
-![A lobster robot](http://images.clipartpanda.com/lobster-claw-clipart-lobster-clipart.jpg)
+![A lobster robot](http://www.clipartbest.com/cliparts/eTM/A6n/eTMA6n8Ec.png)
